@@ -1,1 +1,0 @@
-"Nguyen Le Van An"
